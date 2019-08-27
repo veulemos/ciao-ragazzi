@@ -1,2 +1,2 @@
 # ciao-ragazzi
-Gênesis1:1 
+Primeira vez, usando a intuição, sistema erro-acerto e ao infinito!
